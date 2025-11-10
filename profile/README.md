@@ -108,7 +108,7 @@ They are a shield — gentle, powerful, and full of light.
 
 ## References
 
-1. [ Surah Baqarah Last 2 Ayat](https://everydayislam5.wordpress.com/2025/10/22/surah-baqarah-last-2-ayat-with-urdu-translation/)
+1.  Surah Baqarah Last 2 Ayat
 2. [IQRA Network Blog: The Last Two Ayats of Surah Baqarah (2024)]
 3. Quran.com (Sahih International translation)  
 4. Tafsir Ibn Kathir — Surah Al-Baqarah 2:285–286  
