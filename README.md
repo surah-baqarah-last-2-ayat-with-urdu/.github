@@ -70,7 +70,7 @@
 
 ## Authentic Sources 
 
-- **Qur’an:** Surah Al-Baqarah, 2:285–286 — [Quran.com] 
+- **Qur’an:** [Surah Al-Baqarah, 2:285–286](https://duasurah.com/surah-baqarah-ki-last-2-ayat-with-urdu-translation/) — [Quran.com] 
 - **Hadith:** Sunnah collections (Sunan Ibn Majah, Abu Dawud, Sahih Bukhari & Muslim).  
 - **Tafsir:** Ibn Kathir, al-Tabari, al-Qurtubi commentaries.  
 
@@ -78,7 +78,7 @@
 
 ##  FAQs
 
-**Q: What are the last two ayat of Surah Baqarah?**  
+**Q: What are [the last two ayat of Surah Baqarah](https://currentislam.com/surah-baqarah-last-2-ayat/)?**  
 A: They are verses **2:285** and **2:286**, ending the longest surah in the Qur’an. They summarize faith and conclude with a dua.
 
 **Q: What does “Allah does not burden a soul beyond its capacity” mean?**  
